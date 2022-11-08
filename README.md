@@ -1,0 +1,3 @@
+# uts-textmining-0015
+NAMA : DIAH LIASDIANTI
+NIM 20.01.53.0015
